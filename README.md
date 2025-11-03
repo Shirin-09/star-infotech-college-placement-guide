@@ -1,4 +1,4 @@
-**How to Prepare for IT Placements During College**
+#**How to Prepare for IT Placements During College**
 
 Preparing for IT placements can feel challenging at first, but with the right mindset and plan, you can make it a smooth and rewarding process. At [Star Infotech College](https://starinfotechcollege.com/), students are encouraged to start early and focus on both technical and personal growth so they are ready to step confidently into the professional world.
 
